@@ -10,3 +10,5 @@ kok ga bisa space
 owh kalo mau spasi ya hrs 2x spasi di editor nya.
 
 okkk
+
+okaaaaaai
